@@ -7,6 +7,7 @@ DFBB is a Boston-based dance crew sharing a love of dance and East Asian pop cul
 - [YouTube](https://www.youtube.com/@dfbbdance) — dance covers and performance videos
 - [Instagram](https://www.instagram.com/dfbbdance/)
 - [Bilibili · 波士顿DFBB舞团](https://space.bilibili.com/224435496)
+- WeChat Official Account · 微信公众号 — search `dfbbdance` in WeChat.
 
 ## Performances & collaborations
 
